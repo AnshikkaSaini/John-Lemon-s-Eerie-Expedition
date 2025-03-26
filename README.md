@@ -1,5 +1,4 @@
 ![JL1](https://github.com/user-attachments/assets/0c7fd3a7-811a-4830-b073-c5dc9979c25a)
-![JL2](https://github.com/user-attachments/assets/7e7fcb2e-76eb-409f-a833-dd359ef72161)
 <![JL3](https://github.com/user-attachments/assets/12168877-efa1-426a-bb3f-9030d36d58b5)
 <img width="1280" alt="Screenshot 2025-03-26 at 8 50 07 PM" src="https://github.com/user-attachments/assets/748047b5-479a-40bc-bb4b-eaf32fa0277b" />
 <img width="1280" alt="Screenshot 2025-03-26 at 8 51 45 PM" src="https://github.com/user-attachments/assets/21c349ff-dd6e-46af-85a3-05a8b3130aff" />
